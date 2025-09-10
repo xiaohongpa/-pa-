@@ -8,7 +8,7 @@
 
 小红pa海外永久中转：https://xhp321.xyz/
 
-小红paTG官方群: https://t.me/+CsVl5Unozj0yY2Jl
+小红paTG官方群: https://t.me/+ZpziyYHBtDQ2MGVl
 
 小红pa Discord官方群：https://discord.gg/ZhbF7cuFGF
 
@@ -17,19 +17,19 @@
 
 方法1：tg发送任意消息至 小红pa 官方客服可获取最新地址
 
-牢记官方客服：https://t.me/xiaohpa
+牢记官方客服：https://t.me/yubianhui02
 
 方法2：关注 小红pa X/twitter：https://x.com/zz143488?s=11
 
-方法3：加入 小红pa Telegram频道:https://t.me/gcmn2
+方法3：加入 小红pa Telegram官方群:https://t.me/+ZpziyYHBtDQ2MGVl
 
 方法4：加入 小红pa Discord官方群：https://discord.gg/ZhbF7cuFGF
 
 近期热瓜攀升版： 顶流演员小鲜肉 许凯 出轨公司女星赵晴 酒店做爱视频流出 前女友许莉莎曝光更多渣男操作实锤到底！🔥🔥🔥
 
-联系我们： 商务合作🤝 https://t.me/xiaohpa
+联系我们： 商务合作🤝 https://t.me/yubianhui02
 
-投稿/问题反馈 👉 https://t.me/xiaohpa
+投稿/问题反馈 👉 https://t.me/yubianhui02
 
 
 **常见问题：**

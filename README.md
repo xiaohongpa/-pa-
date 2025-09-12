@@ -2,7 +2,7 @@
  
 官网最新地址：（更新时间：2025/09/01）
 
-小红pa最新入口：[https://xhp321.fun?ch=3VeJhOPlAd](https://xhp321.fun/?ch=3VeJhOPlAd)
+小红pa最新入口：https://h20.ltd?ch=3VeJhOPlAd
 
 小红pa永久地址（需要VPN）：https://xhp321.fun/
 
